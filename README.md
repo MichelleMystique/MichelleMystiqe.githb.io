@@ -1,1 +1,1 @@
-# MichelleMystiqe.githb.io
+# MichelleMystiqe.github.io
